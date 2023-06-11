@@ -5,3 +5,12 @@ Adept at implementing cutting-edge technologies and security measures.
 Passionate about driving efficiency and delivering high-quality solutions.
 Accomplished in enhancing performance, ensuring resilience, and mitigating risks. 
 Strong focus on continuous improvement and staying up-to-date with industry trends.
+https://juicybitsforall.wordpress.com/
+
+https://medium.com/@desmondotutu93
+
+@desmondwangki3666
+
+in/desmond-wangki-0222241bb
+
+https://trailblazer.me/id/desmondwangki
