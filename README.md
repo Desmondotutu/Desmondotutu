@@ -6,12 +6,12 @@ Passionate about driving efficiency and delivering high-quality solutions.
 Accomplished in enhancing performance, ensuring resilience, and mitigating risks. 
 Strong focus on continuous improvement and staying up-to-date with industry trends.
 
-(https://juicybitsforall.wordpress.com/)
+https://juicybitsforall.wordpress.com/
 
-(https://medium.com/@desmondotutu93}
+https://medium.com/@desmondotutu93
 
-(https://youtube.com/@desmondwangki3666)
+https://youtube.com/@desmondwangki3666
 
-(https://www.linkedin.com/in/desmond-wangki-0222241bb/)
+https://www.linkedin.com/in/desmond-wangki-0222241bb/
 
-(https://trailblazer.me/id/desmondwangki)
+https://trailblazer.me/id/desmondwangki
