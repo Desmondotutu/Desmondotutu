@@ -4,6 +4,6 @@ https://medium.com/@desmondotutu93
 
 https://youtube.com/@desmondwangki3666
 
-https://www.linkedin.com/in/desmond-wangki-0222241bb/
+https://www.linkedin.com/in/desmondwangki
 
 https://trailblazer.me/id/desmondwangki
